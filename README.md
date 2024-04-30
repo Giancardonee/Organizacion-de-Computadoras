@@ -1,1 +1,1 @@
-Tengo todo teorico,
+Tengo todo teorico.
